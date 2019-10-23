@@ -1,0 +1,1 @@
+# sanban-A-declaration
